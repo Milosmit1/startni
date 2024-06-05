@@ -1,0 +1,2 @@
+# startni
+početna podesavanja
